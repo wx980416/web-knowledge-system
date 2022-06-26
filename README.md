@@ -4,3 +4,5 @@
 
 个人博客位置在[努力赚钱的小鑫](https://www.cnblogs.com/cqkjxxxx/)
 
+![](https://images.cnblogs.com/cnblogs_com/cqkjxxxx/2165316/o_220626091930_1.png)
+
